@@ -1,0 +1,2 @@
+# El-calentamiento-global-est-reduciendo-la-cantidad-de-nieve-en-regiones-monta-osas
+El calentamiento global está reduciendo la cantidad de nieve en regiones montañosas, afectando tanto a los ecosistemas como a las comunidades humanas. La falta de nieve no solo altera los ciclos naturales de plantas y animales, sino que también tiene consecuencias económicas significativas. Es urgente tomar medidas para mitigar estos efectos.
